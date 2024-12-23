@@ -1,4 +1,4 @@
 # This is how to create any website
-eashan.jpg
-![eashan](https://github.com/user-attachments/assets/a4ce82d1-dd81-4239-b145-3555702ee58a)
+Eashan Reddy Goli
+![qttlbkkk](https://github.com/user-attachments/assets/f18be3b2-71db-4e5f-af0d-c36211fccb15)
 
